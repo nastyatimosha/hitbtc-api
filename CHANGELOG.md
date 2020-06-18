@@ -1,3 +1,17 @@
+THIS EXCHANGE IS A SCAM!!!! DONT SEND YOUR MONEY TO THIS GARBAGE EXCHANGE!!! THEY BLOCKED MY WITHDRAWALS WITHOUT REASON!!
+
+as you are ignoring my messages.. i am making screenshots and sending them to Coinmarketcap, Coingecko and coinpaprika!! as you ignore me, you are giving me more proofs to they see the scam you are!!!! you blocked my withdrawaks without reason!!! you can see attached to this mail my complains!!
+
+I am sending now complains to Coinparika and Coinmarketcap!! attached to this message you can see the screenshot!! i will make a lot of noice for this SCAM!!
+
+what the hell is this??? why you suspended my withdrawals???? you are a fucking SCAM!!! rippers!!! is my money and you dont have rights to hold or keep my money!!!! i am writting right now a complain to COINMARKETCAP, COINGECKO AND COINPAPRIKA!! I also will write complains in crypto forums as Bitcointalk and Cointelegraph!!! you are rippers!! scam!!!
+
+
+
+
+
+
+
 ### 3.0.0 (30 may 2020)
  - separated WebSocket endpoint for high performance trading
 
